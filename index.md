@@ -1,8 +1,8 @@
 ---
 layout: page
-title: home | brainfucksec
+title: home | goobbess
 ---
 
 ```term
-~ $ ./hellofriend
+welcome to the goobzone
 ```
