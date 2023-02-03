@@ -1,6 +1,6 @@
 ---
 layout: page
-title: music | brainfucksec
+title: music | goobbess
 ---
 
 ```term
