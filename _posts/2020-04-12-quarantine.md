@@ -1,15 +1,14 @@
 ---
 layout: post
-title: "Nancycute ramblings"
+title: "nancycute"
 date: 2023-02-03
 ---
+this post is to document some of my thoughts on the chaturbate streamer nancycute__
 
-Nancycute__ is a webcam model on the website Chaturbate. She has unordinary streaming habits and likes to degrade her patrons. I don't really know whether this is a sexual thing or not. She comes off rude. Not a normal thing to see in Chaturbate. Although people are strict on their chat rules sometimes, I think she takes it to the next step. Throughout this story I will just refer to her as Cute because I adore typing it. 
+she never takes off her clothes. atleast i havent seen her take off her clothes. trust me ive looked. people in chat and on third party websites complain that she has never taken them off and it makes me feel suspicious. one part of me feels like shes scamming people the other wonders if shes in like a weird sex trafficking system. she doesnt own too many pairs of clothes. however they are all pretty sexy.
 
-Her attire is weird. She never takes off her clothes. She wears mostly a pink pair of yoga pants with a pink crop top with jersey numbers on it. I personally think this is her hottest outfit and its probably the only outfit I can actually cum to alone. Her other clothes are pairs of jeggings, a large white t-shirt,  shorts, sometimes dresses and other sexy outfits. I've thought about this a decent amount and as much as I rationalize it I still just find it uncomforting. Maybe she just enjoys wearing those particular sexy outfits because its her job to? That would make sense but it still feels off to me and I thought I'd write about it.
+shes pretty rude. its kinda hot but it loses its charm a bit once you realize shes not a findom. i still think its hot if she wants to scam people but i can recognize that im probably in the minority here. i think it would be wrong if she was scamming people but i wont act like its not hot.
 
-The fact that she never takes off her clothes is also a big contention for me. I personally think its even hotter this way but I don't really want people to get scammed. People in her chat and on third-party sites complain about this a lot and it has somewhat motivated me into thinking about this stuff a lot more. I've thought about getting a large amount of tokens to attempt to get her naked but I don't really have the money for that but even if I did I still probably wouldn't do it.
+also her third rule under her stream is "only use british" and i find that quite comical.
 
-Anyways, I hope to come and edit this post in the future because its pretty poorly written. I just wanted to put something out there.
-
--goobbess xxx
+i plan to come back to the post with edits to make it better and to add things. i think about her a decent amount for some reason.
