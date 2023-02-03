@@ -7,5 +7,5 @@ title: who | goobbess
 idk rly know what to write here
 ```
 
-I think this page is important but idk why.
+i think this page is important but idk why.
 
