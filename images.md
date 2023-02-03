@@ -4,7 +4,7 @@ title: images | goobbess
 ---
 
 ```term
-images i like
+NSFW
 ```
 ill put images i like here
 
