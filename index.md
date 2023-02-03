@@ -4,5 +4,5 @@ title: home | goobbess
 ---
 
 ```term
-welcome to the goobzone
+this is my website
 ```
