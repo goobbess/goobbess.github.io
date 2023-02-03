@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Nancycute__"
+title: "Nancycute ramblings"
 date: 2023-02-03
 ---
 
