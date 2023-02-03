@@ -8,6 +8,6 @@ NSFW
 ```
 ill put images i like here // note to self to resize the images
 
-i think of this person as a femboy 2.0 <img src="https://imgur.com/a/ikivsXs">
+next tier femboy <img src="https://imgur.com/a/ikivsXs">
 
 hot asian <img src="https://imgur.com/3hiUKaX">
