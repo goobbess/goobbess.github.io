@@ -1,6 +1,6 @@
 ---
 layout: page
-title: what is goob | goobbess
+title: who | goobbess
 ---
 
 ```term
