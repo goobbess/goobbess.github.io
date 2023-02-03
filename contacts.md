@@ -4,7 +4,7 @@ title: contacts | goobbess
 ---
 
 ```term
-contact me
+my email
 ```
 
 Email:  `goobguyyo@proton.me`
