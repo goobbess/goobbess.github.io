@@ -6,7 +6,7 @@ title: images | goobbess
 ```term
 A LOT OF NSFW
 ```
-ill put images i like here. mostly porn // click the nsfw images to open the actual image
+ill put images i like here. mostly porn // middle click the nsfw icon to open the actual image in another tab
 
 (nsfw) fem 
 <a href="images/sauce or eh/fem.png">
