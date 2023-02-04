@@ -7,5 +7,5 @@ title: who | goobbess
 idk rly know what to write here
 ```
 
-i think this page is important but idk why.
+im goob and i wanna write and share music and images i find pleasing to look at
 
