@@ -6,48 +6,48 @@ title: images | goobbess
 ```term
 A LOT OF NSFW
 ```
-ill put images i like here. mostly porn // note to self to resize the images
+ill put images i like here. mostly porn // embeds dont work so im posting links for now
 
-(nsfw) fem <img src="https://imgur.com/a/ikivsXs">
+(nsfw) fem https://imgur.com/a/ikivsXs
 
-(nsfw) asian <img src="https://imgur.com/3hiUKaX">
+(nsfw) asian https://imgur.com/3hiUKaX
 
-(nsfw) spread <img src="https://imgur.com/a/ZpLuFWW">
+(nsfw) spread https://imgur.com/a/ZpLuFWW
 
-(nsfw) asian2 <img src="https://imgur.com/a/EF6WP78">
+(nsfw) asian2 https://imgur.com/a/EF6WP78
 
-(nsfw) nazi <img src="https://imgur.com/a/WdHaqVx">
+(nsfw) nazi https://imgur.com/a/WdHaqVx
 
-(nsfw) wldm <img src="https://imgur.com/a/1XztqWN">
+(nsfw) wldm https://imgur.com/a/1XztqWN
 
-(nsfw) peen <img src="https://imgur.com/a/yyBmTxR">
+(nsfw) peen https://imgur.com/a/yyBmTxR
 
-(nsfw) asian3 <img src="https://imgur.com/a/ECaGcSq">
+(nsfw) asian3 https://imgur.com/a/ECaGcSq
 
-(nsfw) asian4 <img src="https://imgur.com/a/Y8vtu6G">
+(nsfw) asian4 https://imgur.com/a/Y8vtu6G
 
-(nsfw) fck u <img src="https://imgur.com/a/RkjBPKy">
+(nsfw) fck u https://imgur.com/a/RkjBPKy
 
-(nsfw) leg hair <img src="https://imgur.com/a/UEF5bZv">
+(nsfw) leg hair https://imgur.com/a/UEF5bZv
 
-(nsfw) loli <img src="https://imgur.com/a/zCRsA7c">
+(nsfw) loli https://imgur.com/a/zCRsA7c
 
-(nsfw) raven <img src="https://imgur.com/a/ZH3qBB8">
+(nsfw) raven https://imgur.com/a/ZH3qBB8
 
-(nsfw) hole <img src="https://imgur.com/a/WL5B7Um">
+(nsfw) hole https://imgur.com/a/WL5B7Um
 
-(nsfw) chas <img src="https://imgur.com/a/oWaZHhu">
+(nsfw) chas https://imgur.com/a/oWaZHhu
 
-(nsfw) peek <img src="https://imgur.com/a/3BXHIiQ">
+(nsfw) peek https://imgur.com/a/3BXHIiQ
 
-(nsfw) sound <img src="https://imgur.com/a/HvOQAtU">
+(nsfw) sound https://imgur.com/a/HvOQAtU
 
-(nsfw) booba <img src="https://imgur.com/a/tS2vo67">
+(nsfw) booba https://imgur.com/a/tS2vo67
 
-(nsfw) beta <img src="https://imgur.com/a/bXSqDq6">
+(nsfw) beta https://imgur.com/a/bXSqDq6
 
-(nsfw) back <img src="https://imgur.com/a/0LOHl3b">
+(nsfw) back https://imgur.com/a/0LOHl3b
 
-(nsfw) back2 <img src="https://imgur.com/a/4Om2Wmo">
+(nsfw) back2 https://imgur.com/a/4Om2Wmo
 
-(nsfw) shota <img src="https://imgur.com/a/yseyqnu">
+(nsfw) shota https://imgur.com/a/yseyqnu
