@@ -10,8 +10,10 @@ ill put images i like here. mostly porn // embeds dont work so im posting links 
 
 (nsfw) fem https://imgur.com/a/ikivsXs
 
-(nsfw) asian https://imgur.com/3hiUKaX
-
+(nsfw) asian <a href="puss.jpg">
+  <img src="puss.jpg" width="50px" height=50px">
+                                            </a>
+                                            
 (nsfw) spread https://imgur.com/a/ZpLuFWW
 
 (nsfw) asian2 https://imgur.com/a/EF6WP78
