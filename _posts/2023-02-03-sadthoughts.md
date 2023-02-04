@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "sad thoughts"
+title: "sadthoughts"
 date: 2023-02-03
 ---
 i think about killing myself more than i lead others to believe. i dont think i would ever do it but i think about it a lot. i feel pretty worthless and dont really think myself or anyone else really has a purpose in life. david choe said comfort kills creativity and that resonated with me but i dont feel comfortable or creative. i think im curious and good at exploring things but i dont think i would like describing myself as a creative person. everytime i get a little bit of that creative syrup i feel like its drained by my peers around me. maybe thats the reason i started writing stuff on this site. 
