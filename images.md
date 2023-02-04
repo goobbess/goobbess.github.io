@@ -44,7 +44,7 @@ ill put images i like here. mostly porn // click the nsfw images to open the act
 </a>
 
 (nsfw) asian3
-<a href="images/omgg.jpg">
+<a href="images/oomg.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
