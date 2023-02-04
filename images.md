@@ -9,8 +9,8 @@ A LOT OF NSFW
 ill put images i like here. mostly porn // embeds dont work so im posting links that u cant even click for now
 
 (nsfw) fem 
-<a href="images/saurce or eh/fem.png">
-<img src="images/saurce or eh/fem.png" width="50px" height="50px">
+<a href="images/sauce or eh/fem.png">
+<img src="images/sauce or eh/fem.png" width="50px" height="50px">
 </a>
 
 (nsfw) asian 
