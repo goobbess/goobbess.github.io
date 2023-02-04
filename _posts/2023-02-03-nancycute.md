@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "nancycute"
-date: 2023-02-02
+date: 2023-02-03
 ---
 this post is to document some of my thoughts on the chaturbate streamer nancycute__
 
