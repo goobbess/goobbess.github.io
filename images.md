@@ -6,7 +6,7 @@ title: images | goobbess
 ```term
 A LOT OF NSFW
 ```
-ill put images i like here. mostly porn // embeds dont work so im posting links that u cant even click for now
+ill put images i like here. mostly porn // click the nsfw images to open the actual image
 
 (nsfw) fem 
 <a href="images/sauce or eh/fem.png">
