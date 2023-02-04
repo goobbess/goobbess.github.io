@@ -6,7 +6,7 @@ title: images | goobbess
 ```term
 A LOT OF NSFW
 ```
-ill put images i like here. mostly porn // embeds dont work so im posting links for now
+ill put images i like here. mostly porn // embeds dont work so im posting links that u cant even click for now
 
 (nsfw) fem https://imgur.com/a/ikivsXs
 
