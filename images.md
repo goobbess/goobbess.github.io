@@ -10,50 +10,110 @@ ill put images i like here. mostly porn // embeds dont work so im posting links 
 
 (nsfw) fem 
 <a href="images/sauce or eh/fem.png">
-<img src="images/sauce or eh/fem.png" width="50px" height="50px">
+<img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
 (nsfw) asian 
 <a href="images/puss.jpg">
-<img src="images/puss.jpg" width="50px" height="50px">
+<img src="images/nsfw.png" width="50px" height="50px">
 </a>
                                             
-(nsfw) spread https://imgur.com/a/ZpLuFWW
+(nsfw) spread
+<a href="images/pusssss.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) asian2 https://imgur.com/a/EF6WP78
+(nsfw) asian2
+<a href="images/sushi.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) nazi https://imgur.com/a/WdHaqVx
+(nsfw) nazi 
+<a href="images/hot.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) wldm https://imgur.com/a/1XztqWN
+(nsfw) wldm
+<a href="images/wlm.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) peen https://imgur.com/a/yyBmTxR
+(nsfw) peen
+<a href="images/peen.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) asian3 https://imgur.com/a/ECaGcSq
+(nsfw) asian3
+<a href="images/omgg.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) asian4 https://imgur.com/a/Y8vtu6G
+(nsfw) asian4
+<a href="images/omg.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) fck u https://imgur.com/a/RkjBPKy
+(nsfw) fck u
+<a href="images/flick.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) leg hair https://imgur.com/a/UEF5bZv
+(nsfw) leg hair
+<a href="images/hair.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) loli https://imgur.com/a/zCRsA7c
+(nsfw) loli
+<a href="images/galaxy.png">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) raven https://imgur.com/a/ZH3qBB8
+(nsfw) raven
+<a href="images/guh.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) hole https://imgur.com/a/WL5B7Um
+(nsfw) hole
+<a href="images/pussssssss.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) chas https://imgur.com/a/oWaZHhu
+(nsfw) chas
+<a href="images/chas.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) peek https://imgur.com/a/3BXHIiQ
+(nsfw) peek
+<a href="images/pusss.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) sound https://imgur.com/a/HvOQAtU
+(nsfw) sound
+<a href="images/sound.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) booba https://imgur.com/a/tS2vo67
+(nsfw) booba
+<a href="images/big.png">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) beta https://imgur.com/a/bXSqDq6
+(nsfw) beta
+<a href="images/beta.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) back https://imgur.com/a/0LOHl3b
+(nsfw) back
+<a href="images/back.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) back2 https://imgur.com/a/4Om2Wmo
+(nsfw) back2
+<a href="images/back2.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
 
-(nsfw) shota https://imgur.com/a/yseyqnu
+(nsfw) shota
+<a href="images/skirt.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
