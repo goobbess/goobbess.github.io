@@ -7,7 +7,7 @@ title: music | goobbess
 music | projects
 ```
 
-ill put music here
+ill put music here. no vocals though i want to just use typing to express myself here.
 
 first beat i was happy with. some issues with the file due to not owning the full version of fl studio.
 
