@@ -4,5 +4,5 @@ title: home | goobbess
 ---
 
 ```term
-this is my website
+this is my website. big NSFW warning
 ```
