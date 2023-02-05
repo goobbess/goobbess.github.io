@@ -14,4 +14,8 @@ recently, a stream of an ai television show has caught my interest. ai scares me
 
 this post is clearly me having an existential crisis.
 
-i think about what the fuck i want to type sometimes. how i would seduce a reader. if this is your porn, how would i keep you watching? sometimes i open the notepad app on my desktop and plan out the most desperate things i can say to someone i have sexual feelings for, and i do this sometimes days prior. i recently formed a relationship with a lewd streamer and currently have "mommy *** ive made so many tiny pathetic messes inside my fleshlight listening to both your sfw and nsfw content" typed up and ready to go. i think theyre going to like it.
+i think about what the fuck i want to type sometimes. how i would seduce a reader. if this is your porn, how would i keep you watching? sometimes i open the notepad app on my desktop and plan out the most desperate things i can say to someone i have sexual feelings for, and i do this sometimes days prior. i recently formed a relationship with a lewd streamer and currently have "mommy *** ive made so many tiny pathetic messes inside my fleshlight listening to both your sfw and nsfw content" typed up and ready to go. i think theyre going to like it. i think the longer format of these posts are what make it harder to feel confident. im pretty much putting a multi-hundred word sext onto the internet.
+
+one of the sexiest moments me and my ex had is when i begged them to remove their clothing. i texted them that i want to see them naked and would be happy knowing that i cant have any of it. i didnt even know i could be that erotic but in retrospect i enjoyed that moment a lot.
+
+i think im going to cut this short and go masturbate.
