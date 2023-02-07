@@ -13,6 +13,7 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
+
 (nsfw) asian 
 <a href="images/puss.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
@@ -115,5 +116,25 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 
 (nsfw) shota
 <a href="images/skirt.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
+
+(nsfw) tease
+<a href="images/tease.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
+
+(nsfw) ignoring
+<a href="images/toe.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
+
+(nsfw) blacked
+<a href="images/blac.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
+
+(nsfw) quq
+<a href="images/quq.jfif">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
