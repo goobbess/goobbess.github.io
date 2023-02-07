@@ -4,7 +4,7 @@ title: "reincarnation"
 date: 2023-02-04
 ---
 
-i think about reincarnation a lot. sometimes in life, i wish i could have a reset button or one of those flashy memory-wiping pens from men in black. i thought'd write about this topic so maybe i can think about it a little more.
+i think about reincarnation a lot. sometimes in life, i wish i could have a reset button or one of those flashy memory-wiping pens from men in black. i thought i would write about this topic so maybe i can think about it a little more.
 
 usually, my thoughts of reincarnation are either tied to hippies doing shrooms or regrettable feelings about relationships both sexual and platonic. there are things i regret saying to my ex while we were breaking up and im sure they have their regrets as well. i feel bad about my actions and knowing somebody else knows about those bad actions makes me feel like an unorganized emotional blob. when i get in these low moods, thinking about killing myself to wipe my slate off as much as possible, i start to remember that one day were all going to die, and it makes it a little better. after a long enough period, it will likely be impossible for any trace of my remains to be found in the universe. maybe the next species of intelligent beings will use my carbon molecules as fossil fuel. (i dont know how fossil fuel works; this is just a song reference.)
 
