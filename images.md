@@ -135,6 +135,6 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 </a>
 
 (nsfw) quq
-<a href="images/quq.jfif">
+<a href="images/quq.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
