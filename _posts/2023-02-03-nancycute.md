@@ -3,6 +3,7 @@ layout: post
 title: "nancycute"
 date: 2023-02-03
 ---
+
 this post is to document some of my thoughts on the chaturbate streamer, nancycute__.
 
 she never takes off her clothes. at least i havent seen her take off her clothes. trust me, ive looked. people in chat and on third-party websites complain that she has never taken them off, and it makes me feel suspicious. one part of me feels like shes scamming people, and the other wonders if shes in like a weird system of sex trafficking. she doesnt own too many pairs of clothes. however, they are all pretty sexy.
