@@ -8,10 +8,6 @@ music | projects
 ```
 
 ill put music here. no vocals though i want to just use typing to express myself here.
-
-spotify playlist   
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/62v5RhlLjEj4RkAKNUpwpx?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
         
 first beat. incomplete.
 
@@ -30,3 +26,7 @@ second beat. incomplete
     <p><a href="mp3/dododo.mp3">if youre seeing this then i embeded this wrong but heres a link.</a>
   </p>
 </audio>
+
+spotify playlist   
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/62v5RhlLjEj4RkAKNUpwpx?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
