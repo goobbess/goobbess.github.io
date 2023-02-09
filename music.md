@@ -9,7 +9,11 @@ music | projects
 
 ill put music here. no vocals though i want to just use typing to express myself here.
 
-first beat i was happy with. some issues with the file due to not owning the full version of fl studio.
+spotify playlist   
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/62v5RhlLjEj4RkAKNUpwpx?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+        
+first beat. incomplete.
 
 <audio controls>
   <source src="mp3/haunt.mp3" type="audio/mp3" />
@@ -18,7 +22,7 @@ first beat i was happy with. some issues with the file due to not owning the ful
   </p>
 </audio>
 
-second beat i was happy with. major improvement. not the complete thing because i didnt save and dont own full version of fl studio.
+second beat. incomplete
 
 <audio controls>
   <source src="mp3/dododo.mp3" type="audio/mp3" />
