@@ -39,11 +39,6 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
-(nsfw) peen
-<a href="images/peen.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
 (nsfw) asian3
 <a href="images/oomg.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
@@ -144,7 +139,7 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
-(nsfw) eat it 2
+(nsfw) eat
 <a href="images/pussssss.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
