@@ -13,3 +13,5 @@ shes pretty rude. its kind of hot, but it loses its charm a bit once you realize
 also, her third rule under her stream is "only use british," and i find that quite comical.
 
 i plan to come back to the post with edits to make it better and to add things. i think about her a decent amount for some reason.
+
+feb 10 update: ive been watching their clothing more closely lately and she does have more clothes than i thought. today some guy offered her $3000 and she said she wanted $4000. the more i think about it the more i believe this post is worthless. i will continue to update but i did want to acknowledge that even i find this post to be weird and stalker-like.
