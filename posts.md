@@ -6,23 +6,23 @@ title: posts | goobbess
 <section>
   {% if site.posts[0] %}
 
-    {% capture currentmonth %}{{ 'now' | date: "%M" }}{% endcapture %}
-    {% capture firstpostmonth %}{{ site.posts[0].date | date: '%M' }}{% endcapture %}
-    {% if currentmonth == firstpostmonth %}
-        <h3>This month's posts</h3>
+    {% capture currentyear %}{{ 'now' | date: "%Y" }}{% endcapture %}
+    {% capture firstpostyear %}{{ site.posts[0].date | date: '%Y' }}{% endcapture %}
+    {% if currentyear == firstpostyear %}
+        <h3>This year's posts</h3>
     {% else %}
-        <h3>{{ firstpostmonth }}</h3>
+        <h3>{{ firstpostyear }}</h3>
     {% endif %}
 
     {%for post in site.posts %}
       {% unless post.next %}
         <ul>
       {% else %}
-        {% capture month %}{{ post.date | date: '%M' }}{% endcapture %}
-        {% capture nmonth %}{{ post.next.date | date: '%M' }}{% endcapture %}
-        {% if month != nmonth %}
+        {% capture year %}{{ post.date | date: '%Y' }}{% endcapture %}
+        {% capture nyear %}{{ post.next.date | date: '%Y' }}{% endcapture %}
+        {% if year != nyear %}
           </ul>
-          <h3>{{ post.date | date: '%M' }}</h3>
+          <h3>{{ post.date | date: '%Y' }}</h3>
           <ul>
         {% endif %}
       {% endunless %}
