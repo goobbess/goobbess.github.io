@@ -143,3 +143,13 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <a href="images/pussssss.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
+
+(nsfw) bus
+<a href="images/listen.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
+
+(nsfw) flash
+<a href="images/flash.jpg">
+<img src="images/nsfw.png" width="50px" height="50px">
+</a>
