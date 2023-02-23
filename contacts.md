@@ -7,4 +7,4 @@ title: contacts | goobbess
 my email for some reason
 ```
 
-Email:  `goobguyyo[at]proton.me`
+email:  `goobguyyo[at]proton.me`
