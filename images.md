@@ -29,16 +29,6 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
-(nsfw) nazi 
-<a href="images/hot.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
-(nsfw) wldm
-<a href="images/wlm.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
 (nsfw) asian3
 <a href="images/oomg.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
@@ -109,38 +99,13 @@ ill put images i like here. mostly porn // middle click the nsfw icon to open th
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
-(nsfw) shota
-<a href="images/skirt.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
-(nsfw) tease
-<a href="images/tease.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
 (nsfw) ignoring
 <a href="images/toe.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
-(nsfw) blacked
-<a href="images/blac.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
 (nsfw) quq
 <a href="images/quq.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
-(nsfw) eat it
-<a href="images/pusssssssss.jpg">
-<img src="images/nsfw.png" width="50px" height="50px">
-</a>
-
-(nsfw) eat
-<a href="images/pussssss.jpg">
 <img src="images/nsfw.png" width="50px" height="50px">
 </a>
 
