@@ -13,3 +13,5 @@ on the topic of reddit i also want to say that i hate the amount of censorship t
 although i dont find femboys hot, i find the idea of girls being into femboys hot. i think its so nice that girls just want a girly little plaything that happens to have a dick. its lewd.
 
 i heard a theory from another femboy and they said that femboys are just incels that figured out a way to get pussy. and i like that theory.
+
+i feel like this posts stems from a great hatred towards men. which inadvertedly is somewhat self-hatred.
