@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "sadthoughts"
+title: "sadthought"
 date: 2023-02-03
 ---
 
