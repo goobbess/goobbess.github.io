@@ -14,4 +14,4 @@ although i dont find femboys hot, i find the idea of girls being into femboys ho
 
 i heard a theory from another femboy and they said that femboys are just incels that figured out a way to get pussy. and i like that theory.
 
-i feel like this posts stems from a great hatred towards men. which inadvertedly is somewhat self-hatred.
+i feel like this post stems from a great hatred towards men. which inadvertedly is somewhat self-hatred.
