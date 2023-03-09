@@ -7,7 +7,7 @@ title: music | goobbess
 music | projects
 ```
 
-ill put music here. no vocals though i want to just use typing to express myself here.
+ill put music here.
         
 first beat. incomplete.
 
@@ -18,7 +18,7 @@ first beat. incomplete.
   </p>
 </audio>
 
-second beat. incomplete
+second beat. incomplete and i hate it
 
 <audio controls>
   <source src="mp3/dododo.mp3" type="audio/mp3" />
